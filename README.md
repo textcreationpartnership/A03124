@@ -35,7 +35,9 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Body#####
-These oiles, vvaters, extractions, or essence[s,] saltes, and other compositions; are at Paules whar
+
+1. There Oils, waters, Extractions, or Eſſen•…
+
 **Types of content**
 
   * Oh, Mr. Jourdain, there is **prose** in there!
